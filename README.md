@@ -1,1 +1,5 @@
-# flip-card
+# Flip Card
+
+💙 Instagram: [@izzyluuuuh](https://www.instagram.com/izzyluuuuh/)
+
+---
